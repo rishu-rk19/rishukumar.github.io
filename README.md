@@ -1,1 +1,1 @@
-# rishukumar.github.io
+# ri.github.io
